@@ -1,5 +1,3 @@
-Great — we’ll do this **properly, exam-oriented, and step-by-step**, exactly the way a tough final exam expects.
-As requested, this message is **ONLY Chapter 3**, fully self-contained and deep (this is the **50%+ chapter**, so we go all-in).
 
 ---
 
